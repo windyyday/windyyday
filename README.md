@@ -4,5 +4,3 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31pzbpvuig6zejq5xdoa274s3pz4&cover_image=false&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=149ccd&bar_color_cover=false">
   </a>
 </p>
-
-I FORGOT MY RENTRY EDIT CODE , REMAKING !!! ,, or might switch to strawpage... heh. 👀
